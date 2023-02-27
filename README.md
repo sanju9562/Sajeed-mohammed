@@ -1,4 +1,4 @@
 # DDU - GKY
 
 
-### PROJECTS ON DDU-GKY 
+### THESE ARE MY PROJECTS  
